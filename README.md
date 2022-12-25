@@ -75,7 +75,7 @@ Der ganz kleine Schlüssel an diesem Schlüsselbund ist der **Schlüssel für de
 ![IMG_20200729_195959](https://user-images.githubusercontent.com/22906149/209482431-e5e016ed-b7e3-43e9-97f7-54f8314fc684.jpg)
 
 
-Der einfache Schlüssel am selben Bund ist übrigens für den Vorratsraum direkt rechts, draußen neben der Eingangstür. Da gibt es dann auch schwarze Restmüllsäcke (falls der Müll unter der Spüle voll ist), gelbe Säcke (falls der Plastikmüll im Harry-Potter-Zimmer voll ist). Die vollen Säcke könnt ihr einfach dort auch lagern. Es sind in dem Raum auch noch ein paar Getränke, Schlitten und Bob findet ihr auch dort.
+Der einfache Schlüssel am selben Bund ist übrigens für den **Vorratsraum** direkt rechts, draußen neben der Eingangstür. Da gibt es dann auch schwarze Restmüllsäcke (falls der Müll unter der Spüle voll ist), gelbe Säcke (falls der Plastikmüll im Harry-Potter-Zimmer voll ist). Die vollen Säcke könnt ihr einfach dort auch lagern. Es sind in dem Raum auch noch ein paar Getränke, Schlitten und Bob findet ihr auch dort.
 
 
 **Internet** ist langsam, aber vorhanden. Das W-LAN ist Currywurst, Passwort gibt es per Signal dann von mir wenn ihr da seid.
